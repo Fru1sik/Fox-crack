@@ -1,2 +1,0 @@
-# Fox-crack
-Frusik crack
